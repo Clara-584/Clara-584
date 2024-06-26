@@ -1,4 +1,6 @@
-## Hi there 👋
+## Hi i`m Clara
+ i have 16 yaers old
+ i like camp, music and old cars 
 
 <!--
 **Clara-584/Clara-584** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
