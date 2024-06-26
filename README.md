@@ -1,5 +1,5 @@
 ## Hi i`m Clara
- i have 16 yaers old
+ i have 16 years old
  i like camp, music and old cars 
 
 <!--
